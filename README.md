@@ -1,0 +1,1 @@
+# ajudinha_sptech
